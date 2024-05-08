@@ -1,10 +1,4 @@
-### Hi there 👋
+i love expliots
 
-
-
-- 🔭 I’m currently working on crystal.cc :grin:
-- 🌱 I’m currently learning trying to get better at java
-- 🤔 I’m looking for help with multi threads please help me
-- 💬 Ask me about nothing im dumb
-- 📫 How to reach me: 11010101000 discord
--->
+dm me if you wanna make a rat w me
+11010101000 discord
